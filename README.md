@@ -1,1 +1,0 @@
-Reposit was creating for check git team work abilities
